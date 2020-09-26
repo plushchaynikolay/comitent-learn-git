@@ -5,6 +5,6 @@
 Я Таня, ке 🍒 - https://github.com/GaliullinaTatyana/about-me  
 Логан:gun: - https://github.com/slavamine/about-me  
 Сергей - https://github.com/Sergey-afk/about-me  
-Danil - https://github.com/cody917/about-me1  
+Danil - https://github.com/cody917/about-me  
 What is love ☘️ - https://github.com/vlx88/about-me  
 Камиль 😡 - https://github.com/llLikelll/about-me  
