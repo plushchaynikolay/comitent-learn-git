@@ -4,4 +4,5 @@
 Не знавамо кто, не знавамо зачем 🤖 Евгений ✈️  https://github.com/NeppuaGear/about-me  
 Я Таня, ке 🍒 - https://github.com/GaliullinaTatyana/about-me  
 Логан:gun: - https://github.com/slavamine/about-me  
-Danil - https://github.com/cody917/about-me1
+Сергей - https://github.com/Sergey-afk/about-me  
+Danil - https://github.com/cody917/about-me1  
