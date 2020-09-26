@@ -6,3 +6,4 @@
 Логан:gun: - https://github.com/slavamine/about-me  
 Сергей - https://github.com/Sergey-afk/about-me  
 Danil - https://github.com/cody917/about-me1  
+What is love ☘️ - https://github.com/vlx88/about-me  
