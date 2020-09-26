@@ -3,3 +3,4 @@
 Айрат 🤔 - https://github.com/Evas1oN/about_me  
 Не знавамо кто, не знавамо зачем 🤖 Евгений ✈️  https://github.com/NeppuaGear/about-me  
 Логан:gun: - https://github.com/slavamine/about-me
+Сергей - https://github.com/Sergey-afk/about-me
